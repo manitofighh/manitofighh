@@ -1,1 +1,2 @@
-iOS Application and WebApp Pentester and Security Researcher
+WebApp Pentester and Security Researcher.
+Crypto Enthusiast.

@@ -1,1 +1,1 @@
-iOS Software Developer
+iOS Application and WebApp Pentester and Security Researcher
